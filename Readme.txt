@@ -82,10 +82,10 @@ https://www.youtube.com/watch?v=R4KMx4FeSFI
 28.【DIY】橡皮筋最絕妙的５種用法 你都學會了嗎? [清理毛髮神器,眼鏡防滑,橡皮繩,野餐桌布固定]
 https://www.youtube.com/watch?v=HYhVF_BZYOI
 
-29.想不到橡皮筋的妙用這樣多，學起來受用終身！
+29.想不到橡皮筋的妙用這樣多，學起來受用終身！ [防滑曬衣架,洗髮精節約裝置,手機固定在汽車冷氣口(手機架),砧板防滑,湯尺防滑,讓緊閉的蓋子容易開啟]
 https://www.youtube.com/watch?v=RPcb5cDqEXA
 
-30.12 Zip Tie Life Hacks
+30.12 Zip Tie Life Hacks (束帶/束線帶) [,,,,,,,,,,]
 https://www.youtube.com/watch?v=ZJQjziJKQ1s
 
 31.令人難以置信的USB小工具可以在家裡進行
