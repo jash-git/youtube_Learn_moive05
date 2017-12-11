@@ -100,13 +100,10 @@ https://www.youtube.com/watch?v=JftzvICPdtc
 34.自己制作无叶风扇
 https://www.youtube.com/watch?v=CZDbHosKoGQ
 
-35.42 GENIUS HACKS THAT WILL TAKE YOUR LIFE TO A WHOLE NEW LEVEL []
+35.42 GENIUS HACKS THAT WILL TAKE YOUR LIFE TO A WHOLE NEW LEVEL
 https://www.youtube.com/watch?v=AmuoFM4afMk
 
-36.12 Zip Tie Life Hacks
-https://www.youtube.com/watch?v=ZJQjziJKQ1s
-
-5 Ideas De Reciclar Tapones
+5 Ideas De Reciclar Tapones (寶特瓶蓋的創意) []
 https://www.youtube.com/watch?v=fxHIaDCMHcQ
 
 6 FORMAS DE REUTILIZAR LOS ROLLOS DE PAPEL HIGIÉNICO
