@@ -85,7 +85,7 @@ https://www.youtube.com/watch?v=HYhVF_BZYOI
 29.想不到橡皮筋的妙用這樣多，學起來受用終身！ [防滑曬衣架,洗髮精節約裝置,手機固定在汽車冷氣口(手機架),砧板防滑,湯尺防滑,讓緊閉的蓋子容易開啟]
 https://www.youtube.com/watch?v=RPcb5cDqEXA
 
-30.12 Zip Tie Life Hacks (束帶/束線帶) [,,,,,,,,,,]
+30.12 Zip Tie Life Hacks (束帶/束線帶) [裝訂書/裝訂文件,打火機安全收納,補救拉鍊扣環,枕頭曬衣架,簡易鑰匙圈,電風扇外框固定,自製門簾扣環,湯匙防滑,吹泡泡棒,遛狗繩,永不鬆脫鞋帶]
 https://www.youtube.com/watch?v=ZJQjziJKQ1s
 
 31.令人難以置信的USB小工具可以在家裡進行
@@ -100,7 +100,7 @@ https://www.youtube.com/watch?v=JftzvICPdtc
 34.自己制作无叶风扇
 https://www.youtube.com/watch?v=CZDbHosKoGQ
 
-35.42 GENIUS HACKS THAT WILL TAKE YOUR LIFE TO A WHOLE NEW LEVEL
+35.42 GENIUS HACKS THAT WILL TAKE YOUR LIFE TO A WHOLE NEW LEVEL []
 https://www.youtube.com/watch?v=AmuoFM4afMk
 
 36.12 Zip Tie Life Hacks
