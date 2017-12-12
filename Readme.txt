@@ -103,10 +103,10 @@ https://www.youtube.com/watch?v=CZDbHosKoGQ
 35.42 GENIUS HACKS THAT WILL TAKE YOUR LIFE TO A WHOLE NEW LEVEL
 https://www.youtube.com/watch?v=AmuoFM4afMk
 
-5 Ideas De Reciclar Tapones (寶特瓶蓋的創意) []
+5 Ideas De Reciclar Tapones (寶特瓶蓋的創意) [塑膠袋封,防水盒,蠟燭台,自製噴嘴,牙刷架]
 https://www.youtube.com/watch?v=fxHIaDCMHcQ
 
-6 FORMAS DE REUTILIZAR LOS ROLLOS DE PAPEL HIGIÉNICO
+6 FORMAS DE REUTILIZAR LOS ROLLOS DE PAPEL HIGIÉNICO (衛生紙捲的創意) [,,,,,]
 https://www.youtube.com/watch?v=dv2y9vfX5Qk
 
 35.自製信號彈
