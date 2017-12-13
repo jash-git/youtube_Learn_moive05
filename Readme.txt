@@ -106,7 +106,7 @@ https://www.youtube.com/watch?v=AmuoFM4afMk
 5 Ideas De Reciclar Tapones (寶特瓶蓋的創意) [塑膠袋封,防水盒,蠟燭台,自製噴嘴,牙刷架]
 https://www.youtube.com/watch?v=fxHIaDCMHcQ
 
-6 FORMAS DE REUTILIZAR LOS ROLLOS DE PAPEL HIGIÉNICO (衛生紙捲的創意) [,,,,,]
+6 FORMAS DE REUTILIZAR LOS ROLLOS DE PAPEL HIGIÉNICO (衛生紙捲的創意) [整線器,筆筒,弓箭,手機架,拉炮]
 https://www.youtube.com/watch?v=dv2y9vfX5Qk
 
 35.自製信號彈
@@ -117,6 +117,7 @@ https://www.youtube.com/watch?v=fFFbiXX7PZ8
 
 LIFE HACKS
 https://www.youtube.com/watch?v=g1sz1Lj1su4&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	01.5 Awesome Life Hacks for Plastic Bottle(塑料瓶)[吹風機變吸塵器,,,,,]
 
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
