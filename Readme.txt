@@ -115,9 +115,11 @@ https://www.youtube.com/watch?v=PDrX7-wOQVA
 36.【實驗室】傑里自製煙霧彈實驗?! 煙霧彈變成閃光彈了?! 可樂煙霧彈實驗! | 
 https://www.youtube.com/watch?v=fFFbiXX7PZ8
 
-LIFE HACKS
-https://www.youtube.com/watch?v=g1sz1Lj1su4&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	01.5 Awesome Life Hacks for Plastic Bottle(塑料瓶)[吹風機變吸塵器,,,,,]
+LIFE HACKS 1~157
+	02.5 Awesome Life Hacks for Plastic Bottle(塑料瓶)[吹風機變吸塵器]
+		https://www.youtube.com/watch?v=Hh6puhLeRis&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=2
+	03.2 Awesome ideas()[]	
+		https://www.youtube.com/watch?v=FvCpsuNbO3Q&index=3&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
