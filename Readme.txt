@@ -116,13 +116,23 @@ https://www.youtube.com/watch?v=PDrX7-wOQVA
 https://www.youtube.com/watch?v=fFFbiXX7PZ8
 
 LIFE HACKS 1~157
+	01.3 Awesome School Life Hacks[自製畫線器,,,,,,,,,,,,,,,,,,]
+		https://www.youtube.com/watch?v=_bLBrL1vv4A&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=1
 	02.5 Awesome Life Hacks for Plastic Bottle(塑料瓶)[吹風機變吸塵器]
 		https://www.youtube.com/watch?v=Hh6puhLeRis&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=2
-	03.2 Awesome ideas()[]	
+	03.2 Awesome ideas[自製哄手機吹乾器]	
 		https://www.youtube.com/watch?v=FvCpsuNbO3Q&index=3&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
+原來電鑽有這麼多妙用，省時省力，不知道太可惜了
+	https://www.youtube.com/watch?v=iiusguQ1MDI
+	https://www.youtube.com/watch?v=6ZD1Gtvr9VA
+	https://www.youtube.com/watch?v=DgEkQG6HpbY
+
+放電
+https://www.youtube.com/watch?v=0XIzp_Jyj6g
+	
 04.google翻譯 下載mp3
 	https://www.youtube.com/watch?v=rYuYdWc2XBg	
 05.教你如何用糖來生火[高锰酸钾+糖]
