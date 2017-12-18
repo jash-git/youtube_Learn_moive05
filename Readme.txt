@@ -116,7 +116,7 @@ https://www.youtube.com/watch?v=PDrX7-wOQVA
 https://www.youtube.com/watch?v=fFFbiXX7PZ8
 
 LIFE HACKS 1~157
-	01.3 Awesome School Life Hacks[自製畫線器,,,,,,,,,,,,,,,,,,]
+	01.3 Awesome School Life Hacks[自製畫線器]
 		https://www.youtube.com/watch?v=_bLBrL1vv4A&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=1
 	02.5 Awesome Life Hacks for Plastic Bottle(塑料瓶)[吹風機變吸塵器]
 		https://www.youtube.com/watch?v=Hh6puhLeRis&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=2
@@ -132,6 +132,9 @@ https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyM
 
 放電
 https://www.youtube.com/watch?v=0XIzp_Jyj6g
+
+自動存錢筒
+https://www.youtube.com/watch?v=pRPFAHkld8o
 	
 04.google翻譯 下載mp3
 	https://www.youtube.com/watch?v=rYuYdWc2XBg	
