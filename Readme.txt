@@ -122,7 +122,11 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=Hh6puhLeRis&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=2
 	03.2 Awesome ideas[自製哄手機吹乾器]	
 		https://www.youtube.com/watch?v=FvCpsuNbO3Q&index=3&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-
+	04.3 Awesome Life Hacks	[自製瓦斯爐,火力電風扇]
+		https://www.youtube.com/watch?v=IYO6aIZxFzY&index=5&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	05.8 Awesome Smartphone Life Hacks[手機變身成行動電源,,,,,,,,,,,]
+	
+	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
 原來電鑽有這麼多妙用，省時省力，不知道太可惜了
